@@ -1,1 +1,1 @@
-<h1 align="center"> 热爱会改变一切！
+![Typing SVG](https://readme-typing-svg.demolab.com/?lines=热爱+会改变+一切！)
